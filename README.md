@@ -1,1 +1,1 @@
-# rsschool-cv
+https://stotri.github.io/rsschool-cv/cv
